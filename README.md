@@ -9,3 +9,7 @@ https://drive.google.com/drive/folders/1TTXszoVvHKvRSOkryzzU0ygwK-4dg-h_?usp=sha
 Неделя 2:
 
 https://drive.google.com/drive/folders/1KnWfZJUnuN9E3ou-wFY8rXRugTBGy3DU?usp=sharing
+
+Неделя 3:
+
+https://drive.google.com/drive/folders/1KxQIALAPwIcpTcH8TdvTQlj78xfOP-nO?usp=sharing
